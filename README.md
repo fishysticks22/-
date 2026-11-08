@@ -10,8 +10,8 @@
 </div>
 <br>
  <details>
-    <summary><b>▶ my boundaries and interactions!!</b></summary>
-    <p align="left"> • please interact kindly with me or iwec <br>
+    <summary><b> my boundaries and interactions!!</b></summary>
+    <p>• please interact kindly with me or iwec <br>
 • don’t kiss while approaching me suddenly <br>
 • don’t whisper to harassing me or sending hate to the cosplay im being <br>
 • you can approach me freely if we have the same fandom :D <br>
