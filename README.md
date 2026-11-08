@@ -7,11 +7,8 @@
     <summary><b> my introduction</b></summary>
     <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و </p>
 <details>
-
-</br>
+  
 𓆝 𓆟 𓆞 𓆝 𓆟
-</br></br>
-<details>
   <summary><b> my boundaries and interactions!!</b></summary>
   <p>• please interact kindly with me or iwec
 • don’t kiss while approaching me suddenly
