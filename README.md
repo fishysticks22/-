@@ -8,15 +8,15 @@
     <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و </p>
 
 <br>
-<details></details>
-  <summary><b> my boundaries and interactions!!</b></summary>
-  <p>• please interact kindly with me or iwec
-• don’t kiss while approaching me suddenly
-•don’t whisper to harassing me or sending hate to the cosplay im being
-•you can approach me freely if we have the same fandom :D
-•i don’t do date and please don’t ask me to be my girlfriend or something like wife(im a minor)
-•please respect my boundaries ^^</p>
-</details>
 
+ <details>
+    <summary><b>▶ my boundaries and interactions!!</b></summary>
+    <p align="left"> • please interact kindly with me or iwec <br>
+• don’t kiss while approaching me suddenly <br>
+• don’t whisper to harassing me or sending hate to the cosplay im being <br>
+• you can approach me freely if we have the same fandom :D <br>
+• i don’t do date and please don’t ask me to be my girlfriend or something like wife(im a minor) <br>
+• please respect my boundaries ^^</p>
+  </details>
 /div>
 𓆝 𓆟 𓆞 𓆝 𓆟
