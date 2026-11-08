@@ -5,8 +5,13 @@
   𓆝 𓆟 𓆞 𓆝 𓆟
   <details>
     <summary><b> my introduction</b></summary>
-    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to cuddle but with permission okay? ٩(^ᗜ^ )و </p>
+    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و </p>
   𓆝 𓆟 𓆞 𓆝 𓆟 
-<details>
-
+<my boundaries and interactions!!>
+<p>• please interact kindly with me or iwec
+• don’t kiss while approaching me suddenly
+•don’t whisper to harassing me or sending hate to the cosplay im being
+•you can approach me freely if we have the same fandom :D
+•i don’t do date and please don’t ask me to be my girlfriend or something like wife(im a minor)
+•please respect my boundaries ^^</p>
 </div>
