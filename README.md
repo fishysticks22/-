@@ -6,9 +6,9 @@
   <details>
     <summary><b> my introduction</b></summary>
     <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و </p>
-
+<br><br>
+</div>
 <br>
-
  <details>
     <summary><b>▶ my boundaries and interactions!!</b></summary>
     <p align="left"> • please interact kindly with me or iwec <br>
@@ -17,6 +17,13 @@
 • you can approach me freely if we have the same fandom :D <br>
 • i don’t do date and please don’t ask me to be my girlfriend or something like wife(im a minor) <br>
 • please respect my boundaries ^^</p>
-  </details>
-/div>
-𓆝 𓆟 𓆞 𓆝 𓆟
+<br><br>
+</div>
+ </details>
+ <br>
+     
+<p>𓆝 𓆟 𓆞 𓆝 𓆟</p>
+
+<br>
+
+</div>
