@@ -4,5 +4,5 @@
 
   𓆝 𓆟 𓆞 𓆝 𓆟
     <summary><b> my introduction</b></summary>
-    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to cuddle but with permission okay? ٩(^ᗜ^ )و</p>
+    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to cuddle but with permission okay? ٩(^ᗜ^ )و </p>
   𓆝 𓆟 𓆞 𓆝 𓆟 
