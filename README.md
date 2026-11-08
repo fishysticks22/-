@@ -22,7 +22,7 @@
 </div>
  </details>
  <br>
-     
+ <div align="center">    
 <p>𓆝 𓆟 𓆞 𓆝 𓆟</p>
 
 <br>
