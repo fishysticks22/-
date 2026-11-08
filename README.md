@@ -4,8 +4,8 @@
 
   𓆝 𓆟 𓆞 𓆝 𓆟
   <details>
-    <summary><b>▶ my introduction</b></summary>
-    <p>Your short bio goes here.</p>
+    <summary><b> my introduction</b></summary>
+    <p> hai hai im fishy or you can call me khai(´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but please iwec because i fell uncomfortable with it(◞‸◟)💧</p>
   </details>
   𓆝 𓆟 𓆞 𓆝 𓆟 
 
