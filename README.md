@@ -9,6 +9,7 @@
 <br><br>
 </div>
 <br>
+   <div align="center"> 
  <details>
     <summary><b> my boundaries and interactions!!</b></summary>
     <p>• please interact kindly with me or iwec <br>
