@@ -25,8 +25,8 @@
  <div align="center">    
 <p>𓆝 𓆟 𓆞 𓆝 𓆟</p>
 
-<br>
+<br><br>
+
+<img src=https://imagepaste.org/v/u4wryya9.gifwidth="180" alt="footer image" /> 
 
 </div>
-
-![image](https://imagepaste.org/v/u4wryya9.gif))
