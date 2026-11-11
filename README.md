@@ -5,7 +5,7 @@
   𓆝 𓆟 𓆞 𓆝 𓆟
   <details>
     <summary><b> my introduction</b></summary>
-    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و </p>
+    <p> hai hai im fishy or you can call me khai (´∀｀)/ orr some of my irl type my name khi. i usually interact freely with anyone but im kinda airheaded sometimes💧 also free to int and cuddle but with permission okay? ٩(^ᗜ^ )و also my English is ass</p>
 <br><br>
 </div>
 <br>
@@ -27,6 +27,6 @@
 
 <br><br>
 
-<img src=https://imagepaste.org/v/u4wryya9.gifwidth="180" alt="footer image" /> 
+<img src="https://imagepaste.org/v/6zceegf3.gif" width="180" alt="footer gif" />
 
 </div>
